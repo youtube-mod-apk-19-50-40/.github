@@ -1,11 +1,10 @@
 # YouTube Premium MOD APK 19.50.40 Enjoy Premium Features for Free Latest 2025
 
-| ![youtube premium](https://github.com/user-attachments/assets/a9780e97-1cf4-4512-93c1-7c3ba7e5be61)
- | [![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://heyapks.com/)  |
+| ![youtube premium](https://github.com/user-attachments/assets/a9780e97-1cf4-4512-93c1-7c3ba7e5be61)| [![download-now](https://github.com/user-attachments/assets/22657e67-9d2d-46af-a41a-5d365d2ddc1f)](https://heyapks.com/)  |
 |:-------------------------------------------------:|-----------------------|
-| Platform: Tự điền có căn cứ                      | Version: Tự điền    |
-| size: Tự Điền có căn cứ                                | ⭐️⭐️⭐️⭐️⭐️ (5/5) |
-| Latest Update: Tự điền có căn cứ                      | Category : Thể loại
+| Platform:                    | Version: 19.50.40    |
+| Size: 149.45 Mb                            | ⭐️⭐️⭐️⭐️⭐️ (5/5) |
+| Latest Update: 24/12/2024                      | Category : Video Players & Editors
 
 ## 🎥 What is YouTube Premium MOD APK?  
 YouTube Premium MOD APK is a modified version of the official YouTube app. It offers premium features like ad-free viewing, background playback, and offline downloads without requiring a subscription.  
